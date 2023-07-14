@@ -15,5 +15,3 @@ Here are some strategies that companies can use to encourage employee resource g
 * Incorporate ERGs into company policies and practices: Companies can incorporate ERGs into company policies and practices, such as allowing ERG leaders to attend leadership meetings and providing time off for ERG-related activities.
 
 By encouraging employee resource groups and allies, companies can create a more inclusive workplace environment where all employees feel valued and respected.
-
-In the next chapter, we will discuss techniques for incorporating diversity and inclusion into company policies and practices, including creating a diversity and inclusion committee, conducting a diversity audit, revising policies and practices, establishing diversity goals, and providing training and resources.

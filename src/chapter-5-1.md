@@ -14,5 +14,3 @@ Recruiting and retaining a diverse workforce is important for several reasons:
 * Attracts top talent: Companies that prioritize diversity and inclusion are more attractive to top talent who value these principles.
 
 By prioritizing diversity and inclusion in recruiting and retention efforts, companies can create a more welcoming workplace environment that values and respects all employees.
-
-In the next chapter, we will discuss techniques for recruiting and retaining a diverse workforce, including developing partnerships with diverse organizations, providing diversity and inclusion training, offering mentorship programs, and establishing flexible work arrangements.

@@ -15,5 +15,3 @@ Here are some techniques that companies can use to identify and address unconsci
 * Use data-driven decision-making: Companies can use data-driven decision-making to reduce the impact of subjective biases in decision-making processes.
 
 By implementing these techniques, companies can identify and address unconscious bias in the workplace, leading to a more inclusive workplace environment that values and respects all employees.
-
-In the next chapter, we will discuss strategies for recruiting and retaining a diverse workforce, including developing partnerships with diverse organizations, providing diversity and inclusion training, offering mentorship programs, and establishing flexible work arrangements.

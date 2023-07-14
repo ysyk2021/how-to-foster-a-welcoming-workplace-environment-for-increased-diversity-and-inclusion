@@ -13,7 +13,3 @@ Incorporating diversity and inclusion into company policies and practices is imp
 * Creates consistency: Consistent policies and practices that prioritize diversity and inclusion ensure that all employees are treated fairly and equitably.
 
 By prioritizing diversity and inclusion in company policies and practices, companies can create a workplace environment where all employees feel valued and respected. This can lead to increased employee engagement, satisfaction, and overall productivity.
-
-In the next chapter, we will discuss techniques for incorporating diversity and inclusion into company policies and practices, including creating a diversity and inclusion committee, conducting a diversity audit, revising policies and practices, establishing diversity goals, and providing training and resources.
-
-

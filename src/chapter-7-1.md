@@ -13,7 +13,3 @@ Employee resource groups and allies are important for several reasons:
 * Promotes allyship: Allies are individuals who support and advocate for underrepresented groups. Encouraging allyship among employees can help create a more inclusive workplace where all employees feel valued and respected.
 
 By encouraging employee resource groups and allies, companies can create a more welcoming workplace environment that values and respects all employees. This can lead to increased employee engagement, satisfaction, and overall productivity.
-
-In the next chapter, we will discuss techniques for encouraging employee resource groups and allies, including providing resources and support, recognizing and celebrating contributions, and incorporating ERG perspectives into decision-making.
-
-
