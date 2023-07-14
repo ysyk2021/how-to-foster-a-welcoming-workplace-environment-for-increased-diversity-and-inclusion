@@ -11,5 +11,4 @@ This book is designed for business leaders, human resources professionals, and a
 
 In the following chapters, we will explore topics such as creating a culture of inclusivity and respect, identifying and overcoming obstacles to diversity and inclusion, developing a roadmap for change, and celebrating successes along the way. By implementing the strategies outlined in this book, organizations can create a more welcoming and inclusive workplace environment that values diversity and promotes employee well-being and productivity.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
