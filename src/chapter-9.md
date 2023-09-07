@@ -1,5 +1,3 @@
-Chapter 9: Overcoming Obstacles to Increased Diversity and Inclusion
-====================================================================
 
 Despite the benefits of a diverse and inclusive workplace, organizations may face obstacles in achieving these goals. In this chapter, we will explore common obstacles to increased diversity and inclusion, as well as strategies for overcoming them.
 

@@ -1,5 +1,3 @@
-Conclusion
-==========
 
 Recap of Key Takeaways
 ----------------------

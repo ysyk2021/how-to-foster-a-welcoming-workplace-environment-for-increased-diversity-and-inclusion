@@ -1,6 +1,3 @@
-# Overview of Unconscious Bias
-
-## Introduction
 
 In today's diverse and globalized workplaces, fostering an inclusive environment is crucial for the success of organizations. To create a truly welcoming workplace, it is essential to understand and address unconscious bias. This chapter will provide an overview of unconscious bias, its impact on workplace diversity and inclusion, and strategies to mitigate its effects.
 

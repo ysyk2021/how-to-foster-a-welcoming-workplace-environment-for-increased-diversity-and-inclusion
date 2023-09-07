@@ -1,6 +1,3 @@
-# Importance of Employee Resource Groups and Allies
-
-## Introduction
 
 In today's competitive business landscape, fostering a welcoming workplace environment that embraces diversity and promotes inclusion is crucial for organizations. One effective way to achieve this is through the establishment and support of Employee Resource Groups (ERGs) and allies. ERGs play a vital role in creating a sense of belonging, providing support, and driving positive change within the organization. In this chapter, we will explore the importance of ERGs and allies in cultivating a diverse and inclusive workplace.
 

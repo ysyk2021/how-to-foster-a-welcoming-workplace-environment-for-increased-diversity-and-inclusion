@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 Creating a welcoming workplace environment that values and promotes diversity and inclusion is essential for the success of any organization. In today's global marketplace, companies that prioritize diversity and inclusivity are better positioned to attract and retain top talent, improve collaboration and decision-making, and enhance overall productivity.
 

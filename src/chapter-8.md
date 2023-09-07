@@ -1,5 +1,3 @@
-Chapter 8: Incorporating Diversity and Inclusion into Company Policies and Practices
-====================================================================================
 
 Incorporating diversity and inclusion into company policies and practices is essential for creating a welcoming workplace environment. By making diversity and inclusion a part of the fabric of the organization, companies can ensure that all employees feel valued and included.
 

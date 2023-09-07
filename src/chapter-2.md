@@ -1,5 +1,3 @@
-Chapter 2: Understanding Diversity and Inclusion in the Workplace
-=================================================================
 
 Diversity and inclusion are essential aspects of a welcoming workplace environment. In this chapter, we will explore the definition of diversity and inclusion, as well as the benefits of a diverse and inclusive workplace for both employees and the organization.
 

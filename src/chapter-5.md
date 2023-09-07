@@ -1,5 +1,3 @@
-Chapter 5: Recruiting and Retaining a Diverse Workforce
-=======================================================
 
 Recruiting and retaining a diverse workforce is essential for fostering a welcoming workplace environment. By hiring employees from diverse backgrounds and experiences, companies can benefit from increased creativity, innovation, and improved decision-making.
 

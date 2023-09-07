@@ -1,4 +1,4 @@
-# Introduction
+
 
 Diversity and inclusion are critical components of a successful workplace. A welcoming workplace environment that values diversity and inclusion can lead to increased employee well-being, higher productivity, better decision-making, and improved reputation for the organization.
 
@@ -9,3 +9,7 @@ This book is designed for business leaders, human resources professionals, and a
 In the following chapters, we will explore topics such as creating a culture of inclusivity and respect, identifying and overcoming obstacles to diversity and inclusion, developing a roadmap for change, and celebrating successes along the way. By implementing the strategies outlined in this book, organizations can create a more welcoming and inclusive workplace environment that values diversity and promotes employee well-being and productivity.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng

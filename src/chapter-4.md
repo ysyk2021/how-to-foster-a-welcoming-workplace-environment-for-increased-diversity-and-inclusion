@@ -1,5 +1,3 @@
-Chapter 4: Identifying and Addressing Unconscious Bias
-======================================================
 
 Unconscious bias can impact decision-making in the workplace, leading to unintended discrimination and exclusion. It is important for companies to identify and address unconscious bias in order to create a more welcoming workplace environment.
 

@@ -1,5 +1,3 @@
-Chapter 10: Implementation Strategies for Lasting Change
-========================================================
 
 Creating a welcoming workplace environment for diversity and inclusion requires ongoing effort and commitment. In this chapter, we will explore implementation strategies for fostering a culture of inclusivity and respect that lasts.
 

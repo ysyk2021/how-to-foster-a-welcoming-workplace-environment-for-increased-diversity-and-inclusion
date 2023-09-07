@@ -1,5 +1,3 @@
-Chapter 7: Encouraging Employee Resource Groups and Allies
-==========================================================
 
 Encouraging employee resource groups (ERGs) and allies is essential for creating a welcoming workplace environment. By providing employees with a supportive community and encouraging allyship, companies can promote inclusivity and respect in the workplace.
 

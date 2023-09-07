@@ -1,4 +1,3 @@
-# Strategies for Encouraging Employee Resource Groups and Allies
 
 In this chapter, we will explore effective strategies for fostering employee resource groups (ERGs) and cultivating allies within the workplace. ERGs play a vital role in promoting diversity and inclusion by providing a supportive community for underrepresented employees, while allies contribute to creating an inclusive environment through their advocacy and support. By implementing the following strategies, organizations can encourage the formation of ERGs and promote allyship among their employees.
 

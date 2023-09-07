@@ -1,4 +1,3 @@
-# Common Obstacles to Increased Diversity and Inclusion
 
 Creating a truly diverse and inclusive workplace is a goal shared by many organizations today. However, despite the best intentions, there are several common obstacles that can hinder progress in achieving this objective. In this chapter, we will explore some of these challenges and discuss strategies for overcoming them.
 

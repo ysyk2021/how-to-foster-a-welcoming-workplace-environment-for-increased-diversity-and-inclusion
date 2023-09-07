@@ -1,5 +1,3 @@
-Chapter 6: Providing Diversity and Inclusion Training and Resources
-===================================================================
 
 Providing diversity and inclusion training and resources is essential for creating a welcoming workplace environment. By providing employees with the knowledge and tools they need to understand and navigate diversity and inclusion issues, companies can promote inclusivity and respect in the workplace.
 

@@ -1,5 +1,3 @@
-Chapter 3: Creating a Culture of Inclusivity and Respect
-========================================================
 
 Creating a culture of inclusivity and respect is essential for fostering a welcoming workplace environment for increased diversity and inclusion. In this chapter, we will explore the importance of a culture of inclusivity and respect in the workplace and techniques for promoting it.
 
